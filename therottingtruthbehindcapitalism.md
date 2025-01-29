@@ -73,11 +73,6 @@ Government intervention would be extremely minimal if it’s even there. All thi
 will do is help enforce the corporations’ power. It would do this by being oppressive and pushing a lot of
 propaganda.
 
-(^)
-(^)
-(^)
-
-
 ## Part #4: Capitalist Propaganda System
 
 For a system to work, everyone, or at least the majority, needs to agree on it. If people saw how
